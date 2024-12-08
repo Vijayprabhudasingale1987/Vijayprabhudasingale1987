@@ -5,8 +5,9 @@ hello sir my name vijay Prabhudas ingle- 💞️ I’m looking to collaborate on
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-
-<!---
+<vijayprabhudasingale079@gmail.com>
+<!---><Deep Space Network:deep space.jpl.nasa.gov./dsn/gavrt/index.html. vijayingle@nasa.com>
 Vijayprabhudasingale1987/Vijayprabhudasingale1987 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+---><vijayingle@nasa.com>
+<vijayprabhudasingale079@gmail.com>
